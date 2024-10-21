@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Smoll05
+- 👋 Hi, I’m Carl Angelo Pepino
 - 👀 I’m interested in coding, playing games, and dancing
 - 🌱 I’m currently taking Bachelor of Science in Computer Science
 - 💞️ I’m looking to collaborate on great people
